@@ -42,6 +42,3 @@ Connect With Me
 
 LinkedIn: https://www.linkedin.com/in/jeyapandi-kumaravel/
 
----
-
-B.Pharm | AI | Healthcare Technology | Pharmacoinformatics
